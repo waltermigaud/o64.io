@@ -1,2 +1,2 @@
 # waltermigaud.github.io
-Resources and Resumes!
+Daniel sucks.
